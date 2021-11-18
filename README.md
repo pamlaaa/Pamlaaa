@@ -1,7 +1,7 @@
 ## Olá! Eu sou a Pâmela Vitória.
 - Estudo na <i>UFSM.</i>
 - Info por amor.
-- Tenhos <b>18 anos.</b>
+- Tenho <b>18 anos.</b>
 ##
  <div>   <a href="https://github.com/pamlaaa">   <img height="180em" src="https://github-readme-stats.vercel.app/api?username=pamlaaa&show_icons=true&theme=dracula&include_all_commits=false&count_private=true"/></div>
   
