@@ -7,7 +7,7 @@
 ## eu adoro 
 - Ficar perto de animais, natureza e afins.
 - Sempre procuro algum esporte diferente ou algo do tipo, não gosto da vida muito parada, por isso, que minha vida é uma loucura.
-- Procuro errar e aprender, do que me arrepender do não fiz!
+- Procuro errar e aprender, do que me arrepender do que não fiz!
 - Procuro a diversidade nas coisas simples
 - E mesmo parecendo séria, eu gosto de sorrir 
 ##
