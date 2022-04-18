@@ -4,7 +4,7 @@
 - Tenho <b>18 anos.</b>
 - Sou um amor de pessoa kkkk, nem sempre.
 
-## eu adoro 
+## Eu adoro 
 - Ficar perto de animais, natureza e afins.
 - Sempre procuro algum esporte diferente ou algo do tipo, não gosto da vida muito parada, por isso, que minha vida é uma loucura.
 - Procuro errar e aprender, do que me arrepender do que não fiz!
